@@ -1,1 +1,1 @@
-[K1einHub.github.com](http://danilamk.beget.tech/)
+[tk21.tk](http://danilamk.beget.tech/)
