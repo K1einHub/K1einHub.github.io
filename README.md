@@ -1,2 +1,2 @@
 # K1einHub.github.io
-Хостинг
+danilamk.beget.tech
