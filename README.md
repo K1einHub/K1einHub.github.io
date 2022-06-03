@@ -1,1 +1,1 @@
-http://danilamk.beget.tech/
+K1einHub.github.io
