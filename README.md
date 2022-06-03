@@ -1,2 +1,2 @@
 # K1einHub.github.io
-danilamk.beget.tech
+ K1einHub.github.io
